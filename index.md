@@ -10,7 +10,7 @@ Let's talk about sustanability.
 
 ## Empowerment
 
-> "Empowerment if the collective working together"
+> "Empowerment is the collective working together"
 >
 > John Andersen, Founder of SEF
 
