@@ -14,7 +14,7 @@ Let's talk about sustanability.
 >
 > John Andersen, Founder of SEF
 
-## Facilitaiton
+## Facilitation
 
 So much has been facilitated
 
